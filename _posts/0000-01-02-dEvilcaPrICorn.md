@@ -1,1 +1,1 @@
-Welcom to my second :capricorn: slide :capricorn: 
+Welcom to my second slide:capricorn: slide :capricorn: 
